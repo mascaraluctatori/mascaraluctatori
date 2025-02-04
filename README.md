@@ -87,6 +87,6 @@ HII!!! THIS IS [LYRA//KEIRA!!](https://github.com/lyraevergreen) HE IS MY GOAT F
 # What else do I need to know?
 
 you can always pm me and ask me for my discord or tiktok ^_^!!! I will give you it if I trust you enough otherwise here are some links!
-[my rentry hoard list](https://rentry.co/rentryhoardlisty) // [pronouns.page](https://en.pronouns.page/@c0lumbiina) // [my PUBLIC carrd](https://felismisfit.carrd.co/) // [my strawpage (SIGN IT PLSPSLPSLS)](https://birdzofafeather.straw.page/)
+[my rentry hoard list](https://rentry.co/rentryhoardlisty) // [pronouns.page](https://en.pronouns.page/@c0lumbiina) // [my PUBLIC carrd](https://felismisfit.carrd.co/) // [my strawpage (NOT MOBILE FRIENDLY)(SIGN IT PLSPSLPSLS)](https://birdzofafeather.straw.page/)
 
 ![tumblr_89df77cfb7fc4e83ea6217a27228e38a_ade74bb3_2048](https://github.com/user-attachments/assets/da0e3077-26e7-47ca-9204-adf214ded0ac)
