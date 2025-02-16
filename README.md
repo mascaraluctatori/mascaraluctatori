@@ -25,7 +25,7 @@ I say SLURS THAT I CAN RECLAIM!! again not with malice, just for jokes!
 
 I very honest when I want to be which is most of the time, and have a hard time holding my tongue//thoughts back. aka I speak my mind, which can be a flaw of mine :,)
 
-I have autism and very intense paranoia//anxiety//depression + intense mood swings sometimes so this contributes to me overthinking a lot of the time please use tone tages and communicate well//clearly with me.
+I have autism and very intense paranoia//anxiety//depression + intense mood swings sometimes so this contributes to me overthinking a lot of the time please use tone tags and communicate well//clearly with me.
 
 I make nsfw jokes sometimes, just depends on the person. if this makes you uncomfortable- PLEASE COMMUNICATE THAT! otherwise I will assume you dont give a fuck /srs
 
@@ -87,6 +87,6 @@ HII!!! THIS IS [LYRA//KEIRA!!](https://github.com/lyraevergreen) HE IS MY GOAT F
 # What else do I need to know?
 
 you can always pm me and ask me for my discord or tiktok ^_^!!! I will give you it if I trust you enough otherwise here are some links!
-[my rentry hoard list](https://rentry.co/rentryhoardlisty) // [pronouns.page](https://en.pronouns.page/@c0lumbiina) // [my PUBLIC carrd](https://felismisfit.carrd.co/) // [my strawpage (NOT MOBILE FRIENDLY)(SIGN IT PLSPSLPSLS)](https://birdzofafeather.straw.page/)
+[my rentry hoard list](https://rentry.co/rentryhoardlisty) // [pronouns.page](https://en.pronouns.page/@vividnotions) // [my PUBLIC carrd](https://felismisfit.carrd.co/) // [my strawpage (NOT MOBILE FRIENDLY)(SIGN IT PLSPSLPSLS)](https://birdzofafeather.straw.page/)
 
 ![tumblr_89df77cfb7fc4e83ea6217a27228e38a_ade74bb3_2048](https://github.com/user-attachments/assets/da0e3077-26e7-47ca-9204-adf214ded0ac)
