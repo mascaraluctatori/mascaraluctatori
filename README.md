@@ -70,7 +70,7 @@ non-traumagenic systems//endo//tulpa systems and their supporters//defenders
 you want to roleplay with me
 
 you are against my ships as well as liking//supporting the following, fruitcake, shellvision, dabihawks, enjihawks, etc shippers more in depth
-[here](https://rentry.co/columbinazships)
+[here](https://rentry.co/varesasships)
 
 TREND HOPPERS!!
 
