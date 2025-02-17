@@ -59,7 +59,7 @@ you are delusional about//a hater//sexualize keigo takami//hawks thats my husban
 
 stalkers
 
-pressuring me in any way
+pressuring me in any way//being very urgent towards me
 
 you genuinely hate on selfship- you're no fun
 
@@ -69,7 +69,7 @@ non-traumagenic systems//endo//tulpa systems and their supporters//defenders
 
 you want to roleplay with me
 
-fruitcake, shellvision, dabihawks, enjihawks, etc shippers more in depth
+you are against my ships as well as liking//supporting the following, fruitcake, shellvision, dabihawks, enjihawks, etc shippers more in depth
 [here](https://rentry.co/columbinazships)
 
 TREND HOPPERS!!
@@ -82,7 +82,7 @@ HAII!! what links will be shown below are my main friendgroup//my favs//my holy 
 
 HAII THIS IS [THE GARDEN OF METEORS SYSTEM!!](https://github.com/Garden-of-Meteors) THEY'RE ALL SUPER SILLY GOOBER!! LOVE YOU GUYS
 
-HII!!! THIS IS [LYRA//KEIRA!!](https://github.com/lyraevergreen) HE IS MY GOAT FR!! LOVE YOU HO
+HII!!! THIS IS [LYRA!](https://github.com/lyraevergreen) HE IS MY GOAT FR!! LOVE YOU HO
 
 # What else do I need to know?
 
