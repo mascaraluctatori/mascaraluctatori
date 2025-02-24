@@ -57,6 +57,9 @@ your name is gaige/jonesy/zephyr/daisuke/brandon
 
 you are delusional about//a hater//sexualize keigo takami//hawks thats my husband guys!
 
+you are against my ships as well as liking//supporting the following, [arlefuri](https://rentry.co/WhyArlefuriIsNasty), fruitcake, shellvision, dabihawks, enjihawks, etc shippers more in depth
+[here](https://rentry.co/varesasships)
+
 stalkers
 
 pressuring me in any way//being very urgent towards me
@@ -68,9 +71,6 @@ weird kinnies
 non-traumagenic systems//endo//tulpa systems and their supporters//defenders
 
 you want to roleplay with me
-
-you are against my ships as well as liking//supporting the following, [arlefuri](https://rentry.co/WhyArlefuriIsNasty), fruitcake, shellvision, dabihawks, enjihawks, etc shippers more in depth
-[here](https://rentry.co/varesasships)
 
 TREND HOPPERS!!
 
