@@ -15,7 +15,7 @@ I swear a LOT. and I mean a LOT.. it helps me express myself better and I never 
 
 I block ANYONE. I feel makes me or my friends uncomfortable//upset very freely!! this is for my own comfort//safety. I don't care who you are /srs :,)
 
-any pony skins with "ME" in it means its an irl!
+any pony skins with "ME" in it means its an irl! ( most constant irls [here](https://pronouns.cc/@mascaraluctatori) or [here](https://rentry.co/varesasirls) )
 
 I am delusional so please be aware, I may hide you or dislike you if you conflict with that in any way :,).
 
