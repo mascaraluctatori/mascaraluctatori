@@ -82,7 +82,7 @@ HAII!! what links will be shown below are my main friendgroup//my favs//my holy 
 
 HAII THIS IS [THE GARDEN OF METEORS SYSTEM!!](https://github.com/Garden-of-Meteors) THEY'RE ALL SUPER SILLY GOOBER!! LOVE YOU GUYS
 
-HII!!! THIS IS [ICY!](https://github.com/lyraevergreen) HE IS MY GOAT FR!! LOVE YOU HO
+HII!!! THIS IS [EVERGREEN!](https://github.com/lyraevergreen) HE IS MY GOAT FR!! LOVE YOU HO
 
 # What else do I need to know?
 
