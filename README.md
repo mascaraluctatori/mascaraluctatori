@@ -2,7 +2,7 @@
 ![hawkseyes](https://github.com/user-attachments/assets/d39dd918-074c-49db-b106-5c1e1fc86f2b)
 # intro !! 
 <p align="center">
-helloo!!ㅤI'm finn or whatever irl names you want to call me ^_^!!ㅤstill kinda figuring out my identity but for now I am a femme presenting nonbinary transneutral//masc MAN//MASC LIKER!ㅤI'm pretty friendly most of the time and don't mind interacting unless I have a strict "DNIUSF//DNI" in my name!ㅤwhere can you find me? depends!ㅤIF I AM WITH FRIENDS we're near murder drones area or hermit hill!ㅤIF I AM BY MYSELF I will be near docks, cookie run, hoyoverse or mha//anime area. ALSO! I am varesas #1 fan fr :3 shes so me
+helloo!!ㅤI'm finn or whatever irl names you want to call me ^_^!!ㅤstill kinda figuring out my identity but for now I am a femme presenting nonbinary transneutral//masc MAN//MASC LIKER!ㅤI'm pretty friendly most of the time and don't mind interacting unless I have a strict "DNI" in my name!ㅤwhere can you find me? depends!ㅤI will be near docks, cookie run, hoyoverse or mha//anime area. ALSO! I am varesas #1 fan fr :3 shes so me
 </p>
 
 ![image](https://github.com/user-attachments/assets/53ae078a-3d1c-4198-9a95-77b875aa019f)
