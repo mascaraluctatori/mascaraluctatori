@@ -13,6 +13,8 @@ I'm pretty oblivious//unaware most of the time so please be patient with me
 
 I swear a LOT. and I mean a LOT.. it helps me express myself better and I never plan on stopping I fear :,)
 
+I am a crashout so beware I guess
+
 I block ANYONE. I feel makes me or my friends uncomfortable//upset very freely!! this is for my own comfort//safety. I don't care who you are /srs :,)
 
 any pony skins with "ME" in it means its an irl! ( most constant irls [here](https://pronouns.cc/@finnmertens) or [here](https://rentry.co/varesasirls) )
