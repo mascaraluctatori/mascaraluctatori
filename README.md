@@ -37,7 +37,7 @@ PUH LEASEEE PLEASE PLEASE know I don't intend to piss people off//make them upse
 
 any of the following fandoms//groups: MOST horror themed things just ask me if I'm okay with it :), the color blue, real life gore, dragon ball, SEVENTEEN, Danganronpa, Mouthwashing, Red vs Blue, Ninjago, Vocaloid, Sonic, APHMAU and her relations, and more. THESE THINGS tend to make me uncomfortable!
 
-you are younger than 17 or older than 25
+you are younger than 18 or older than 25
 
 mha fandom.. some of y'all are weird as FUCK. and you need to stay away from me
 
