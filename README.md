@@ -76,14 +76,6 @@ TREND HOPPERS!!
 
 ![image_17](https://github.com/user-attachments/assets/b169d357-da83-4c19-a1a6-6167cc89501a)
 
-# THE SILLY FREAKS!! MY GANG!! MY SUPER SIGMA CREATURES!!
-
-HAII!! what links will be shown below are my main friendgroup//my favs//my holy grails//my super sigma creatures//the silly freaks I LOVE THEM SO MUCH!! you can usually find me sitting with at least one of them when I am online ^_^!!!!
-
-HAII THIS IS [THE GARDEN OF METEORS SYSTEM!!](https://github.com/Garden-of-Meteors) THEY'RE ALL SUPER SILLY GOOBER!! LOVE YOU GUYS
-
-HII!!! THIS IS [EVERGREEN!](https://github.com/lyraevergreen) HE IS MY GOAT FR!! LOVE YOU HO
-
 # What else do I need to know?
 
 you can always pm me and ask me for my discord or tiktok ^_^!!! I will give you it if I trust you enough otherwise here are some links!
