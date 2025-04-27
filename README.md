@@ -15,6 +15,8 @@ I swear a LOT. and I mean a LOT.. it helps me express myself better and I never 
 
 I am a crashout so beware I guess
 
+I make nsfw jokes sometimes, just depends on the person. if this makes you uncomfortable- PLEASE COMMUNICATE THAT! otherwise I will assume you dont give a fuck /srs
+
 I block ANYONE. I feel makes me or my friends uncomfortable//upset very freely!! this is for my own comfort//safety. I don't care who you are /srs :,)
 
 any pony skins with "ME" in it means its an irl! ( most constant irls [here](https://pronouns.cc/@finnmertens) or [here](https://rentry.co/varesasirls) )
@@ -28,8 +30,6 @@ I say SLURS THAT I CAN RECLAIM!! again not with malice, just for jokes!
 I very honest when I want to be which is most of the time, and have a hard time holding my tongue//thoughts back. aka I speak my mind, which can be a flaw of mine :,)
 
 I have autism and very intense paranoia//anxiety//depression + intense mood swings sometimes so this contributes to me overthinking a lot of the time please use tone tags and communicate well//clearly with me.
-
-I make nsfw jokes sometimes, just depends on the person. if this makes you uncomfortable- PLEASE COMMUNICATE THAT! otherwise I will assume you dont give a fuck /srs
 
 PUH LEASEEE PLEASE PLEASE know I don't intend to piss people off//make them upset//uncomfortable, if I do anything you don't like COMMUNICATE THAT WITH ME!! because otherwise I cannot improve on myself in that area :,).
 
