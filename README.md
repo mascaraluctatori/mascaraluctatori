@@ -5,12 +5,9 @@
 
 hi sigmas 
 
-this is wip, ive decided to take a break from the online world for a bit but not long.
-I want to learn how to be a person that can actually function with the help of irl people around me, because as of recent ive noticed being online so much has done a number on my mental health as well as driven how I treat people into the ground. which is not okay. thank you for understanding!
+currently coming off hiatus and will be updating all my social medias! thanks for bearing with me ^_^
 
-in future this will be completely updated.
-
-bio edit date - 5/28/2025
+bio edit: 06/15/25
 
 best regards,
 finn
